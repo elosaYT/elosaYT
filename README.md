@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @elosaYT
+- 👀 I’m interested in yotube
+- 🌱 I’m developer in server Minecraft
+- 💞️ I’m Owner Scaupe_Studio
